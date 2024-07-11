@@ -3,4 +3,4 @@
 - 😊 I’m looking to improve my skills 
 - 👯 I’m looking to collaborate on github
 - 📫 How to reach me:@asredwan421@gmail.com
-- ⚡ Fun fact:love to playing games
+- ⚡ Fun fact: love to playing games
